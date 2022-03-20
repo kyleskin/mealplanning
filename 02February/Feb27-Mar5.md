@@ -2,23 +2,24 @@
 
 ## Sunday
 
-* Chicken salad
+* Fend for yourself
 
 ## Monday
 
-* Baked Potatoes
+* Frozen pizza
 
 ## Tuesday
 
-* Tacos
+* Pizza
 
 ## Wednesday
 
 * Creamy Mushroom Chicken with Crispy Onion
+* Lemon-Thyme Sheet-Pan Chicken & Potatoes
 
 ## Thursday
 
-* Chicken wraps
+* ?
 
 ## Friday
 

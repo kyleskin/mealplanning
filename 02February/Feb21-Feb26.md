@@ -14,7 +14,7 @@
 
 ## Wednesday
 
-* Lemon-Thyme Sheet-Pan Chicken & Potatoes
+* Chicken salad
 
 ## Thursday
 
